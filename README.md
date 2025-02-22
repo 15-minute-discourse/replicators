@@ -22,7 +22,22 @@ In this podcast, we explore the chilling history of *replicators**, the self-rep
 
 *Don't forget to like and subscribe for more deep dives into the fascinating world of science fiction, technology, and the future of humanity!*
 
---- 
+---
+
+- [Can We Control AI? The Terrifying Lessons of Replicators and the Future of Humanity](#can-we-control-ai-the-terrifying-lessons-of-replicators-and-the-future-of-humanity)
+  - [Ranking Replicator Threats](#ranking-replicator-threats)
+  - [Examining Further Aspects of Replicators](#examining-further-aspects-of-replicators)
+  - [Asurans vs. Milky Way Replicators: A Hypothetical Conflict](#asurans-vs-milky-way-replicators-a-hypothetical-conflict)
+  - [Replicators Infecting the Ori: A Hypothetical Scenario](#replicators-infecting-the-ori-a-hypothetical-scenario)
+  - [Assessing the IOA's Chances of Creating "Safe" Human-Form Replicators](#assessing-the-ioas-chances-of-creating-safe-human-form-replicators)
+  - [The Fate of Elizabeth Weir's Asuran Group](#the-fate-of-elizabeth-weirs-asuran-group)
+  - [Potential for Replicator Resurgence and the Possibility of Peace](#potential-for-replicator-resurgence-and-the-possibility-of-peace)
+  - [The Likelihood of Replicator Resurgence](#the-likelihood-of-replicator-resurgence)
+  - [Lessons Learned from Encounters with Replicators](#lessons-learned-from-encounters-with-replicators)
+  - [Complete Explanation of Replicators](#complete-explanation-of-replicators)
+
+
+---
 
 ## Ranking Replicator Threats
 
